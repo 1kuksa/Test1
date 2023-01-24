@@ -10,12 +10,4 @@ asd
 asd
 asd
 
-fasd
-asd
-asd
-asd
-asd
-asdasdasdasd
-asdasda
-asd
 
